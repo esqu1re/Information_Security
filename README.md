@@ -1,0 +1,1 @@
+I confirm that I have read and understood the syllabus. I agree to follow all deadlines and submit my projects, labs, and other tasks on time. I confirm that I will do all my work by myself and follow the course rules. I understand that I am responsible for my work and accept the consequences if I do not follow these rules.
